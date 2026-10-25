@@ -1,5 +1,5 @@
 
-# Hey, I'm [Your Username] 👾
+# Hey, I'm Sara 👾
 
 **Computer Engineering Student @ UDC** 🇪🇸
 
